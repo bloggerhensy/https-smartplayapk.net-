@@ -1,1 +1,1 @@
-# https-smartplayapk.net-
+Hello! Welcome to [Smart Play Apk](https://smartplayapk.net/). You can watch free movies and web series here. To make your movie and TV series experience better, download the latest version of Smart Play Apk. Install it on your smartphones, smart TVs, TV boxes, Google Chromecast, tablets, Xiaomi TV, FireStick, and Windows PC.
